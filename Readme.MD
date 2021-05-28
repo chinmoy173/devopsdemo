@@ -7,7 +7,6 @@ what to do bro
 
 
 Just some fresh update
-yeah
 
+I hope this isnt gonna be a problem
 
-i can do it
